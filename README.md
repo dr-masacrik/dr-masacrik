@@ -9,7 +9,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/e84489715d59d885d95da3bc4f07c0b6/952542f4524ddce2-f2/s75x75_c1/970ac0bbe978d4c2a08121060376e8192f8dd865.gifv">⠀⠀♂️　ꕀ　<img src="https://64.media.tumblr.com/328df62ba8a273d71398b9b764bee951/d1bd9a001994ae40-aa/s75x75_c1/e78ffb1ae36488960cf4a3e2b028365d1430bc8d.gifv">　demiboy　<img src="https://64.media.tumblr.com/fea2da4255d6aa965570999b82818584/952542f4524ddce2-78/s75x75_c1/a6365ad7b79d457f29beefd11b3abefa432187c5.gifv">　𓂃 　₎₎
 <p align="center">
-𓎠𓎠　˘　he　 𓈒　him　　
+𓎠𓎠　˘　he　 𓈒　they　　
 
 <p align="center">
 <img src="https://64.media.tumblr.com/601cd480345fe95758c15d736f85e8fc/7f0dfe165277a14d-d6/s400x600/87a9ecc6499b03977f49e2e151bf08cfc56228fb.pnj">

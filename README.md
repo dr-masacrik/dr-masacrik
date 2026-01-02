@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/fb6e31e1ceb5ce224f5ff4ec7f75c3d3/f1c8226937adda9e-59/s250x400/57255d6817bb8b1e1910e199932b7fe805d7cb0e.gifv">
 
 <p align="center">
-◟ ᛝ ˙　naib   ◟   vince　 ⸝⸝　21　<img src="https://64.media.tumblr.com/685d21a8fc3b20b2c88b7d1c2f85f425/952542f4524ddce2-71/s75x75_c1/c8387f789e98c750d68fea8a18c45706df20f6a1.gifv">⠀་།† ‿ 𝜗℘
+◟ ᛝ ˙　naib       ◟       vince　 ⸝⸝　21　<img src="https://64.media.tumblr.com/685d21a8fc3b20b2c88b7d1c2f85f425/952542f4524ddce2-71/s75x75_c1/c8387f789e98c750d68fea8a18c45706df20f6a1.gifv">⠀་།† ‿ 𝜗℘
 <p align="center">
 <img src="https://64.media.tumblr.com/e84489715d59d885d95da3bc4f07c0b6/952542f4524ddce2-f2/s75x75_c1/970ac0bbe978d4c2a08121060376e8192f8dd865.gifv">⠀⠀♂️　ꕀ　<img src="https://64.media.tumblr.com/328df62ba8a273d71398b9b764bee951/d1bd9a001994ae40-aa/s75x75_c1/e78ffb1ae36488960cf4a3e2b028365d1430bc8d.gifv">　demiboy　<img src="https://64.media.tumblr.com/fea2da4255d6aa965570999b82818584/952542f4524ddce2-78/s75x75_c1/a6365ad7b79d457f29beefd11b3abefa432187c5.gifv">　𓂃 　₎₎
 <p align="center">
